@@ -1,0 +1,1 @@
+Both adults and children will not stop eating this fabulous fudge, loaded with food value. Wrap individually in colourful wrappers. 
